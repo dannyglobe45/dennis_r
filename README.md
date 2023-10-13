@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @dannyglobe45
+- 👋 Hi, I’m @dennis_r
 - 👀 I’m interested in Webdesign and Developing.
 - 🌱 I’m currently learning to help other People to learn.
 - 💞️ I’m looking to collaborate on ...
